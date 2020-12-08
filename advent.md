@@ -20,6 +20,44 @@
 ## 買ったもの
 
 ### 1月
-PCメモリ
 
-Teamの16GB
+
+### ３月
+Huawei Band4 pro
+¥7,500
+### 4月
+
+Xbox エリートコントローラ2
+￥ 15,882
+エリコンですね
+FH4をやる民もまだおおいし
+
+### ５月
+
+Xbox ワイヤレスレシーバー
+ ￥ 2,280 
+
+ CCA C12+リケーブルピン
+  ￥ 5,800  +￥ 2,990 
+
+### 6月
+
+scenario experiments lain
+ ￥ 2,750 
+
+###  9月
+FIFINE K053 
+ ￥ 3,199 
+
+ IdeaPad Duet + カバー￥ 1,430 
+
+Hyppr PowerJuice + Nimaso 1m
+￥ 4,999 +￥ 1,499 
+
+### 10月
+USIペン
+
+65Wトラベルチャージャー
+
+ibasso DC03
+¥6,800
